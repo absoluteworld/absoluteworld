@@ -3,6 +3,7 @@
  <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/41tasw.gif">
  <img alt="YOUR-ALT-TEXT" src="https://files.catbox.moe/41tasw.gif">
 </picture>
+
 hi im fundip im 18 and im really crazy abt sister location and sonic unleashed
 i tend to go offtab alot so if i randomly stop responding dw! also pls pls PLS keep interactions sfw if your under 17 ok? thanks! 
 no proshippers or darkshippers or whatever the fuck theyre called yhank you.
