@@ -1,16 +1,14 @@
-<picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/41tasw.gif">
- <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/41tasw.gif">
- <img alt="YOUR-ALT-TEXT" src="https://files.catbox.moe/41tasw.gif">
-</picture>
-
-hi im fundip im 18 and im really crazy abt sister location and sonic unleashed
-i tend to go offtab alot so if i randomly stop responding dw! also pls pls PLS keep interactions sfw if your under 17 ok? thanks! 
-no proshippers or darkshippers or whatever the fuck theyre called yhank you.
-i rlly like pinnipeds and think theyre awesome! leopard seals and australian sea lions are some of my favorites! i also like centipedes and millipedes and stuff.
-I HC ALOT OF CHARACTERS AS LESBIANS OR GIRLS! so if u see me use she/her on a male character do not correct me i literally do not care. 
-<picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://files.catbox.moe/t8fx0f.gif">
- <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/t8fx0f.gif">
- <img alt="YOUR-ALT-TEXT" src="https://files.catbox.moe/t8fx0f.gif">
-</picture>
+<p align="center">
+  <img  src="https://files.catbox.moe/41tasw.gif">
+</p>
+<p align="center">
+hi im fundip im 18
+ </p>
+ <p align="center">
+  <img  src="https://files.catbox.moe/o35cp9.gif" >  <img  src="https://files.catbox.moe/hw9ql8.gif" > <img  src="https://files.catbox.moe/zygbth.gif" > <img  src="https://files.catbox.moe/685b1d.png" >
+</p>
+</p>
+ <p align="center">
+  i rlly like sister location and sonic unleashed. </p>
+  <p align="center">pls keep convos and jokes sfw if under 17!
+i frequently go offtab and dont know how to respond sometimes</p>
